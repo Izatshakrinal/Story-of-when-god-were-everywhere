@@ -12,7 +12,9 @@ A multi-media art attraction installation used symbol/character and the most adv
 Interaction: The most interesting thing about the project is the interactivity and its reliance on audience participation. As spectators touch using finger point onto the wall to see the projected content, characters the world contained in those characters opens up and the story begins
 
 I. Analysis
+
 1. Research
+
 a. Scope
 A call for the viewer’s completes engagement of body and mind which is capacities to move and to explore something behind it. 
 To expand art and that digital can create new relationship between people which is encouraging changes in the relationships among people in the same space, and to make the presence of other people a positive experience, through digital art. 
